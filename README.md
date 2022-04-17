@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Carlgh50
+- 👀 I’m interested in electricity and nuclear power
+- 🌱 I’m currently learning energy storage thermodynamics
+- 💞️ I’m looking to collaborate on advanced nuclear energy concepts especially GenIV.
+- 📫 How to reach me holdercarl@hotmail.com
+--->
